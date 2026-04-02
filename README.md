@@ -16,7 +16,7 @@ BYI.
 DNIs.
 <br>
   <br>
-✿ Basic DNI criteria. 13-, 21+, proshippers/darkshippers, and people that can make me uncomfortable, usually inappropriate jokes or weird interactions. (I take it too seriously)
+✿ Basic DNI criteria. 13-, 21+, proshippers/darkshippers, forsaken fandom, supporters of problematic people/media/fandoms
 </details>
 
 <div align=center>
