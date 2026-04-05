@@ -7,10 +7,10 @@
 BYI.
 <br>
   <br>
-❀ For Roleplays. <br> : I'm okay with ships, except for flutter, coal and pebble, and the kids.
+❀ For Roleplays. <br> : I'm okay with ships, except for flutter, coal and pebble, and the kids. <br> : I'm bad at choosing which character I should rp as so don't be mean if I am forced to change "^_^
 <br>
   <br>
-❀ In public, usually docks or dw spot. <br> : C + H is encouraged unless name is something else or bad mood. I don't chat first unless you chat first, exceptions for complements like crowns.
+❀ In public, usually docks or dw spot. <br> : C + H is encouraged unless name is something else or bad mood. I don't chat first unless you chat first, exceptions for complements like crowns. <br> : I am sensitive and easy to embarrass, just note I will hide freely if I embarrass myself...
 <br>
   <br>
 DNIs.
