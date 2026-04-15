@@ -3,6 +3,14 @@
 ![](https://komarev.com/ghpvc/?username=FIyte&style=flat&color=5FA0A0&label=+❀+)
 
 <details align=middle>
+<summary>$${\color{#477A9E}INTRO}$$</summary>
+: Call me Quixx, Komi, Flyte, Loveware or Wiperware!
+<br>
+  <br>
+: I am a Fictionkin of Loveware, Flyte and Ginger!
+</details>
+
+<details align=middle>
 <summary>$${\color{#477A9E} BYIㅤANDㅤDNIs}$$</summary>
 BYI.
 <br>
